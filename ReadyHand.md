@@ -51,6 +51,16 @@
 ![Alt 9萬](https://upload.wikimedia.org/wikipedia/commons/7/70/MJm9plane.png)
 
 
+
+![Alt 5條](https://upload.wikimedia.org/wikipedia/commons/9/90/MJs5plane.png)
+![Alt 6條](https://upload.wikimedia.org/wikipedia/commons/d/dd/MJs6plane.png)
+![Alt 6條](https://upload.wikimedia.org/wikipedia/commons/d/dd/MJs6plane.png)
+![Alt 7條](https://upload.wikimedia.org/wikipedia/commons/e/ee/MJs7plane.png)
+![Alt 7條](https://upload.wikimedia.org/wikipedia/commons/e/ee/MJs7plane.png)   
+兩面聽 上聽
+![Alt 5條](https://upload.wikimedia.org/wikipedia/commons/9/90/MJs5plane.png)
+![Alt 8條](https://upload.wikimedia.org/wikipedia/commons/9/96/MJs8plane.png) 
+
 ![Alt 3條](https://upload.wikimedia.org/wikipedia/commons/a/a4/MJs3plane.png)
 ![Alt 4條](https://upload.wikimedia.org/wikipedia/commons/5/57/MJs4plane.png)
 ![Alt 5條](https://upload.wikimedia.org/wikipedia/commons/9/90/MJs5plane.png)
